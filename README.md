@@ -1,2 +1,0 @@
-# yanely
-Redes sociales
